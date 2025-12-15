@@ -246,7 +246,7 @@ Having all these 10 important documents is not just about compliance—it's abou
 - **Convenience**: Smooth transactions and applications
 - **Peace of Mind**: Preparedness for any requirement
 
-**Take action today**: Review your documents, identify what's missing, and start the application process. These documents are your gateway to opportunities, services, and rightsin India and abroad.
+**Take action today**: Review your documents, identify what's missing, and start the application process. These documents are your gateway to opportunities, services, and rights in India and abroad.
 
 ## Additional Resources
 
